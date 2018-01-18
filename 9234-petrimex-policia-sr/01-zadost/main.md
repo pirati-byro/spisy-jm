@@ -7,7 +7,7 @@ author:
    mail:    jakub.michalek@pirati.cz
 our:
    name:    Poslanecký klub Pirátů
-   sign:    JMI \#cislo
+   sign:    JMI \#9234
 your:
    name:    
       -     Ministerstvo vnútra SR             
