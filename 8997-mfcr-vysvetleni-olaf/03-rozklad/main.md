@@ -34,7 +34,8 @@ Tato žádost byla rozhodnutím ze dne 8. 1. 2018 částečně zamítnuta co do 
 
 Žádám proto, aby mi byla poskytnuta Závěrečná zpráva Evropského úřadu pro boj proti podvodům (dále jen "OLAF") ve věci projektu č. CZ.1.15/2.1.00/04.00095 "Multifunkční kongresový areál Čapí hnízdo" pod označením Case No OF/2015/1348/B4 (dále jen "závěrečná zpráva") v plném znění.
 
-**Odůvodnění:**
+|**Odůvodnění:**|
+|:-------------:|
 
 Ministerstvo financí (dále jen "ministerstvo") odmítlo poskytnutí předmětné informace s odkazem na ustanovení § 11 odst. 6 zk. č. 106/1999 Sb., o svobodném přístupu k informacím a odůvodněním, že závěrečná zpráva je součástí trestního spisu a dle vyjádření Městského státního zastupitelství v Praze (dále jen "MSZ v Praze") *"(...)s ohledem na obsah zprávy, který obsahuje i informace shromážděné v trestním řízení by jejich zveřejněním mohlo dojít k ohrožení jeho průběhu."*.
 Ministerstvo dále připustilo, že zde dochází ke konfliktu dvou práv, zakotvených v zákonech stejné právní síly, resp. jim odpovídajících veřejných zájmů, a sice veřejném zájmu na naplnění účelu trestního řízení a veřejného zájmu na zveřejňování úředních dokumentů, a provedlo v tomto ohledu test proporcionality.
