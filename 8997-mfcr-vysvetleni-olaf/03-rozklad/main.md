@@ -26,9 +26,9 @@ v souladu s ustanovením § 16 odst. 1 zákona č. 106/1999 Sb., o svobodném p�
 
 Dne 22. 12. 2017 jsem podal prostřednictvím datové schránky žádost:
 
-*1. o poskytnutí kopie písemností, které Ministerstvo financí obdrželo od orgánů Evropské unie v kauze Čapí hnízdo (tj. podezření z dotačního podvodu, které spočívá v tom, že poslanci hnutí ANO 2011 Ing. Andrej Babiš a Ing. Jaroslav Faltýnek měli účelově vydávat firmu vlastněnou holdingem Agrofert za malý a střední podnik a neoprávněně tak vylákat z ROP Střední Čechy částku 50 milionů korun); jde například o vyjádření OLAF k výsledkům vyšetřování, které je zmiňováno v médiích s tím, že Ministerstvo financí zná jeho výsledky; 
+*1. o poskytnutí kopie písemností, které Ministerstvo financí obdrželo od orgánů Evropské unie v kauze Čapí hnízdo (tj. podezření z dotačního podvodu, které spočívá v tom, že poslanci hnutí ANO 2011 Ing. Andrej Babiš a Ing. Jaroslav Faltýnek měli účelově vydávat firmu vlastněnou holdingem Agrofert za malý a střední podnik a neoprávněně tak vylákat z ROP Střední Čechy částku 50 milionů korun); jde například o vyjádření OLAF k výsledkům vyšetřování, které je zmiňováno v médiích s tím, že Ministerstvo financí zná jeho výsledky;* 
 
-2. o vysvětlení toho, zda byla dotace 50 milionů uhrazena z rozpočtu České republiky či rozpočtu jiné veřejné instituce, zda bude EU refundována a pokud nikoliv, zda jste nárok na náhradu škody vzniklé státu uplatnila či ji uplatníte v rámci trestního řízení nebo jiným zákonným způsobem tak, abyste zabránila jeho promlčení.*
+*2. o vysvětlení toho, zda byla dotace 50 milionů uhrazena z rozpočtu České republiky či rozpočtu jiné veřejné instituce, zda bude EU refundována a pokud nikoliv, zda jste nárok na náhradu škody vzniklé státu uplatnila či ji uplatníte v rámci trestního řízení nebo jiným zákonným způsobem tak, abyste zabránila jeho promlčení.*
 
 Tato žádost byla rozhodnutím ze dne 8. 1. 2018 částečně zamítnuta co do bodu 1.
 
