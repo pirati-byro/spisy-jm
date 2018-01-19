@@ -26,10 +26,12 @@ v souladu se zákonem č. 211/2000 Z.z., o slobodnom prístupe k informáciám, 
 
 1. o poskytnutí informací o jakékoli trestní věci šetřené Policií SR v souvislosti se změnou majoritního podílu akcií ve společnosti Agrofert a.s. v roce 1994. 
 
-
-Žádám o poskytnutí informací v elektronické podobě, je-li to možné. 
-
-**Žádám o doručování do datové schránky 4memzkm.**
+Žádám o doručení na následující poštovní adresu Poslanecké sněmovny Parlamentu České republiky:
+Poslanecká sněmovna Parlamentu České republiky
+Poslanecký klub České pirátské strany - k rukám předsedy poslaneckého klubu Jakuba Michálka
+Sněmovní 4
+118 26, Praha 1 - Malá Strana
+Česká republika
 
 S úctou 
 
