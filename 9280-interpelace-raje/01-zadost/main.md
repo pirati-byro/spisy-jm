@@ -31,10 +31,13 @@ Dovoluji si Vás požádat, abyste na setkání s předsedou EK avizovaném na 2
 
 
 "Zdroje:"
-* [http://www.ceskatelevize.cz/ct24/ekonomika/1009570-juncker-nizke-dane-pro-nadnarodni-firmy-byly-v-poradku](http://www.ceskatelevize.cz/ct24/ekonomika/1009570-juncker-nizke-dane-pro-nadnarodni-firmy-byly-v-poradku)
-* [https://www.lidovky.cz/juncker-jako-lucembursky-premier-leta-hatil-danove-reformy-eu-ve-prospech-korporaci-g3h-/zpravy-svet.aspx?c=A170103_164843_ln_zahranici_fas](https://www.lidovky.cz/juncker-jako-lucembursky-premier-leta-hatil-danove-reformy-eu-ve-prospech-korporaci-g3h-/zpravy-svet.aspx?c=A170103_164843_ln_zahranici_fas)
-* [https://www.euro.cz/politika/kauza-luxleaks-juncker-mel-osobne-pomahat-danovym-figlum-1297634](https://www.euro.cz/politika/kauza-luxleaks-juncker-mel-osobne-pomahat-danovym-figlum-1297634)
-* [https://glopolis.org/1952/vyzva-politikum-zamerte-se-na-danove-raje](https://glopolis.org/1952/vyzva-politikum-zamerte-se-na-danove-raje)
+[http://www.ceskatelevize.cz/ct24/ekonomika/1009570-juncker-nizke-dane-pro-nadnarodni-firmy-byly-v-poradku](http://www.ceskatelevize.cz/ct24/ekonomika/1009570-juncker-nizke-dane-pro-nadnarodni-firmy-byly-v-poradku)
+
+[https://www.lidovky.cz/juncker-jako-lucembursky-premier-leta-hatil-danove-reformy-eu-ve-prospech-korporaci-g3h-/zpravy-svet.aspx?c=A170103_164843_ln_zahranici_fas](https://www.lidovky.cz/juncker-jako-lucembursky-premier-leta-hatil-danove-reformy-eu-ve-prospech-korporaci-g3h-/zpravy-svet.aspx?c=A170103_164843_ln_zahranici_fas)
+
+[https://www.euro.cz/politika/kauza-luxleaks-juncker-mel-osobne-pomahat-danovym-figlum-1297634](https://www.euro.cz/politika/kauza-luxleaks-juncker-mel-osobne-pomahat-danovym-figlum-1297634)
+
+[https://glopolis.org/1952/vyzva-politikum-zamerte-se-na-danove-raje](https://glopolis.org/1952/vyzva-politikum-zamerte-se-na-danove-raje)
 
 Žádám vás o odpověď v elektronické podobě, kdykoliv je to možné. 
 
