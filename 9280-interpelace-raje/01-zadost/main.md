@@ -31,7 +31,7 @@ Dovoluji si Vás požádat, abyste na setkání s předsedou EK avizovaném na 2
 
 \newpage
 
-"Zdroje:"
+Zdroje:
 
 [http://www.ceskatelevize.cz/ct24/ekonomika/1009570-juncker-nizke-dane-pro-nadnarodni-firmy-byly-v-poradku](http://www.ceskatelevize.cz/ct24/ekonomika/1009570-juncker-nizke-dane-pro-nadnarodni-firmy-byly-v-poradku)
 
