@@ -29,7 +29,7 @@ v souladu s ustanovením čl. 53 Ústavy České republiky a § 110 an. zákona 
 
 Dovoluji si Vás požádat, abyste na setkání s předsedou EK avizovaném na 29. 1. 2018 v Bruselu řešil otázku minimální výše korporátních daní a tajných dohod snižujících vybraným podnikům zdanění v EU tak, aby nebyly peníze vyváděny z české ekonomiky do Irska, Lucermburska a jiných států. V Hospodářských novinách jsem si přečetl, že Česká republika tomu prý brání a tím umožňuje existenci takových rájů, které nás připraví podle odhadu až o 58 miliardy korun. Níže jsem vám zkopíroval graf, podle kterého se i většina populace domnívá, že mezinárodní firmy provádí velké daňové úniky, přičemž proti agresivnímu daňovému plánování se vymezujete i v programovém prohlášení vlády. Jsem si vědom toho, že pan Juncker sám začínal jako lucemburský premiér tak, že přebíral cizím zemím jejich daňové poplatníky a lákal je do Lucemburska speciálními daňovými dohodami, nicméně nyní se zavázal, že bude usilovat o vyšší daňovou odpovědnost států, a tedy je nutné ho ujistit, že Česko má zájem zastavit toto odtékání daňových výnosů mimo státní hranice.
 
-![Graf](https://github.com/adam-p/markdown-here/raw/master/src/common/images/icon48.png)
+![Graf](https://github.com/pirati-byro/spisy-jm/blob/master/9280-interpelace-raje/01-zadost/graf.png)
 
 Zdroje:
 [http://www.ceskatelevize.cz/ct24/ekonomika/1009570-juncker-nizke-dane-pro-nadnarodni-firmy-byly-v-poradku](http://www.ceskatelevize.cz/ct24/ekonomika/1009570-juncker-nizke-dane-pro-nadnarodni-firmy-byly-v-poradku)
